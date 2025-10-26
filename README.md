@@ -1,1 +1,1 @@
-# Rozwiazania-Zadan-PO_lab2-Sem.-2
+# Rozwiazania-Zadan-PO_lab2-Sem.-3
